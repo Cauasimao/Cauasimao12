@@ -1,9 +1,11 @@
-***oiii Seja bem vindo ao meu perfil
+### oiii Seja bem vindo ao meu perfil
 
 😁 meu nome é *cauã silva* 
 
 Estou em FORMAÇÂO nos curso (alura) 
 
-Para emtrar em contto comigo: caua037silva@gmail.com ou 📞 988045454
+Para entrar em contto comigo: 
+📧 caua037silva@gmail.com 
+📞 988045454
 
 
